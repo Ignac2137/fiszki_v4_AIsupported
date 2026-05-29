@@ -1,0 +1,1 @@
+# fiszki_v4_AIsupported
